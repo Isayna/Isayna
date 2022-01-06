@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Isayna
+- 👋 Hi, I’m @Emilie-Isayna
 - 👀 I’m interested in dance, music and code
 - 🌱 I’m currently learning code
 - 💞️ I’m looking to collaborate on oooh I don't know haha
