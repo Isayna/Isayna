@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Emilie-Isayna
-- 👀 I’m interested in dance, music and code
+- 👀 I’m interested in dance, music, videos games and code
 - 🌱 I’m currently learning code
 - 💞️ I’m looking to collaborate on oooh I don't know haha
 - 📫 How to reach me: emilie.taillasson@me.com
